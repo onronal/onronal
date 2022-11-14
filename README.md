@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @onronal
+- 👀 C# & HTML & Js & Angular
+- 📫 onur@selaleweb.com | Company Mail : oonal@burgan.com.tr
+- 📫 +905446372040
