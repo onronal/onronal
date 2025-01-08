@@ -3,4 +3,5 @@
 - 📫 onur@selaleweb.com | Company Mail : oonal@burgan.com.tr
 - 📫 +905446372040
 - LinkedIn: https://www.linkedin.com/in/onalonr/
+- SkillSoft Wallet: https://skillsoft.digitalbadges-eu.skillsoft.com/profile/eu-onuronal438740/wallet
 - I'm Talking About My Company: https://www.youtube.com/watch?v=VDM__UgZfo0&list=PLgvt1cNFR4vFhg9SME710FckYII7hjgFa&index=9&ab_channel=Anlats%C4%B1n
